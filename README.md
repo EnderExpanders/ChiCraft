@@ -1,4 +1,4 @@
 ChiCraft
 ========
 
-The second Mod Created By Me FunnyC
+The second Mod Created By FunnyC715
